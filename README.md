@@ -1,4 +1,4 @@
-# SAIFUL-10SAIFUL-X-x0x0x1|0|2|9|8|u|0|_|a|2|9|8💥REANDOM  Ok id🥀 clone Commands😍
+# 💥REANDOM  Ok id🥀 clone Commands😍
 
 💢THIS tools is Free💥
 
